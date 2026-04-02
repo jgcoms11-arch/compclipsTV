@@ -35,4 +35,4 @@ We may update these Terms at any time. Continued use of the Service constitutes 
 
 ## 8. Contact
 
-For questions about these Terms, contact the application owner.
+For questions about these Terms, contact jgcoms11@gmail.com.

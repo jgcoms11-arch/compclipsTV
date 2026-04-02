@@ -4,7 +4,7 @@
 
 ## 1. Acceptance of Terms
 
-By using this application ("Service"), you agree to these Terms of Service. If you do not agree, do not use the Service.
+By using this compclips, you agree to these Terms of Service. If you do not agree, do not use the Service.
 
 ## 2. Description of Service
 

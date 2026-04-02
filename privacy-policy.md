@@ -4,7 +4,7 @@
 
 ## 1. Introduction
 
-This Privacy Policy describes how this application ("Service") collects, uses, and protects your information when you use our content scheduling tool.
+This Privacy Policy describes how comp clips collects, uses, and protects your information when you use our content scheduling tool.
 
 ## 2. Information We Collect
 
